@@ -2,7 +2,8 @@
 - 👀 I’m interested in ...collaboration with like minded individuals for Jesus Christ
 - 🌱 I’m currently learning ...marketing, business, content creation
 - 💞️ I’m looking to collaborate on ...new projects and business opportunities
-- 📫 How to reach me ...melissa.chattin@yahoo.com
+- 📫 How to reach me ...melissa.chattin@yahoo.com/ melissa.chattin@outlook.com
+mmchattin2121@gmail.com
 
 <!---
 Melissas-star/Melissas-star is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
